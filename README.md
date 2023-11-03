@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Aspiring Full Stack Developer | #100ProjectsChallenge | Let's build! 🌐 #WebDev<br><br>
+🚀 Aspiring Full Stack Web Developer | #100ProjectsChallenge | Let's build! 🌐 #WebDev<br><br>
 
 
 ## 🌐 Socials:
